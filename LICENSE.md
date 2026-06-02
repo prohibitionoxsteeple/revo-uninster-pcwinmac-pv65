@@ -1,4 +1,4 @@
-# 
+# Mis à jour Revo Uninstaller plugins pour Mac OS | Instantané Revo Uninstaller plugins pour PC Windows. Avec traitement par lots et indexation des fichiers — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
